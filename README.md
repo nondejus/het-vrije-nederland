@@ -1,2 +1,0 @@
-# het-vrije-nederland-van-involuntary-euthanasia
-2002-2021
